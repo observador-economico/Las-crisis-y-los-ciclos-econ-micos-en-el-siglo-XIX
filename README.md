@@ -1,1 +1,2 @@
-# Las-crisis-y-los-ciclos-econ-micos-en-el-siglo-XIX
+# Las-crisis-y-los-ciclos-económicos-en-el-siglo-XIX
+La revolución industrial permitió el crecimiento y desarrollo del sistema capitalista en los países occidentales. La acumulación del capital transformó las sociedades a costa de mutaciones económicas y sociales. Desde el nacimiento y el desarrollo del maquinismo, la producción total de los países industrializados no ha dejado de crecer a la vez que, de período en período, se modificaban las estructuras. La población activa del sector primario se ha reducido progresivamente en beneficio, primeramente, del sector secundario, y, luego, del terciario, según el esquema analítico de Colin Clark. 
